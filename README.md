@@ -22,5 +22,8 @@ To become an **AI Engineer** capable of building, deploying, and improving intel
 
 I'm always open to **learning, collaborating, and building** with other people in tech.
 
+## How to reach me: 
+    email - linetmondor@gmail.com
+    WhatsApp - +254 799471958
 
 --->
